@@ -70,3 +70,12 @@ Upload → Process → Get viral clips instantly
 ##  Author
 
 Prathikksha S
+
+
+
+https://github.com/user-attachments/assets/c7674e25-674c-48ec-941d-68047b7c2c8e
+
+
+
+
+
